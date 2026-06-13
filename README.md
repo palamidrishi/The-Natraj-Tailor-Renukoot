@@ -1,1 +1,1 @@
-# Nature-s-Cure-Homeopathic-Clinic
+# The Natraj Tailor, Renukoot U.P.
